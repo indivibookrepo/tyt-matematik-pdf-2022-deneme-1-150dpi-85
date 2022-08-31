@@ -1,0 +1,1 @@
+# tyt-matematik-pdf-2022-deneme-1-150dpi-85
